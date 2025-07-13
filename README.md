@@ -88,6 +88,6 @@ Thank you for exploring my Mutual Fund Analysis project!
 I’m always open to suggestions, improvements, or collaboration ideas.
 
 📩 Feel free to connect with me on LinkedIn
-📧 Or drop an email: niravtrivedi069@gmail.com
+📧 Or drop an email: 369amalkb@gmail.com
 
 Your feedback helps me grow and build better data-driven solutions. Let’s connect and discuss ideas!
